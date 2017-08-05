@@ -1,1 +1,0 @@
-Put generic mages here
